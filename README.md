@@ -1,6 +1,6 @@
 - 👋 hello im vicki
 - i am sad sometimes
-- im in the process of learning code lolol
+- i am also happy though !
 - i am not lonely anymore 
 - if anyone wants to talk to me, feel free too
 
