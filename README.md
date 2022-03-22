@@ -1,7 +1,7 @@
 - 👋 hello im vicki
 - i am sad sometimes
 - i am also happy though !
-- i am not lonely anymore 
+- i am lonely
 - if anyone wants to talk to me, feel free too
 
 <!---
